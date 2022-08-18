@@ -21,7 +21,7 @@
 
 - 📫 How to reach me **berkpexel@gmail.com**
 
-- 📄 Know about my experiences [8 years of experience in Start Up Consulting, Marketing Generalist, Self-taught Developer](8 years of experience in Start Up Consulting, Marketing Generalist, Self-taught Developer)
+- 📄 Know about my experiences [8 years of experience in Startup Consulting, Marketing Generalist, Self-taught Developer](8 years of experience in Start Up Consulting, Marketing Generalist, Self-taught Developer)
 
 - ⚡ Fun fact **I am also musician and Civil Engineer.**
 
